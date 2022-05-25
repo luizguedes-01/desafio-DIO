@@ -2,21 +2,20 @@
 
 ================================
 
-###  EA SPORTS ***FIFA 22***:soccer: 
+* ###  EA SPORTS ***FIFA 22***:soccer: 
 
-#### :heavy_plus_sign:
-
-##### PACOTE FUT EXCLUSIVO:1st_place_medal:
+  #### :heavy_plus_sign:
+  ##### PACOTE FUT EXCLUSIVO:1st_place_medal:
 
 ---------------------------------------
 
-#### TRIBES OF MIDGAD:boat:
+* #### TRIBES OF MIDGAD:boat:
 
 -------------------------------------------------------------
 
 
 
-#### CURSE OF THE DEAD GODS:no_good:
+* #### CURSE OF THE DEAD GODS:no_good:
 
 -----------------------------------------------------------------
 
