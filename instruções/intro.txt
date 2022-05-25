@@ -1,4 +1,4 @@
-Esse projeto tem como finalidade mostrar jogos que estão disponíveis no site da psn plus como gratuítos no mês.
+Esse projeto tem como finalidade mostrar jogos que estão disponíveis no site da psn plus como gratuitos no mês.
 
 " Desafio DIO primeiro projeto git. Desde já agradeço a oportunidade de aprendizado a equipe DIO e espero que esteja bom e que seja de bom entendimento e interação"
 
